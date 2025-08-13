@@ -1,4 +1,4 @@
-## Hi there 👋
+## oruspu çocuğu sg 🪐😇
 
 <!--
 **l4v5x1/l4v5x1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
